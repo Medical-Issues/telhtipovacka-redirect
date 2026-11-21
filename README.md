@@ -1,0 +1,1 @@
+# telhtipovacka-redirect
